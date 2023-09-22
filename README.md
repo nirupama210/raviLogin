@@ -16,5 +16,3 @@ c b dbw dnb cbd bd b sajb ddsmn dwmnmn
  cfnfd bndb fn ndbw 
  en ndv dn vvdbfcbcv 
 1111111111
-aaaaaaaaaaaaaaaaaa
-aaaaaaaaaaa
